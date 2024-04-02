@@ -3,7 +3,7 @@
 ### Hi there 👋
 
 - 🔭 I’m currently studying in ISTBI, Fudan University
-- 🧠 Focus on Brain and Embodied Intelligence Research
+- 🧠 Focus on Brain and Intelligence Research
 - 🏃 Football ⚽️ and Frisbee 🥏 Lover
 - 😎 ENTP
 
